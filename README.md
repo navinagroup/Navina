@@ -16,3 +16,6 @@ Nếu đang có nhu cầu gửi hàng qua Mỹ và muốn nắm rõ quy trình c
 6/ Khách hàng có thể theo dõi đơn hàng qua hệ thống Tracking của Navina
 
 7/ Thông báo đến quý khách tình trạng đơn hàng và hoàn tất giao dịch.
+https://navina.info/dich-vu-gui-hang-di-my-gia-re-va-uy-tin-nhat-tai-tphcm
+https://navina.info/chuyen-hang-di-nuoc-ngoai
+
